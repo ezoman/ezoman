@@ -1,1 +1,1 @@
-I love to code all sorts of applications. :)
+I'm an expert computer programmer.
